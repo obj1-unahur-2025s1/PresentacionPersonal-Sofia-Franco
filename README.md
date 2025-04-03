@@ -15,3 +15,5 @@
 - Me encanta dibujar, principalmente estilo anime, ya que es uno de mis hobbies favoritos. Mi serie favorita es One Piece (probablemente me vean en la facu con algún buzo/remera/sticker en el termo en relación a One Piece).
 - Tengo bastantes hobbies, pero destacan cocinar y jugar videojuegos (mi favorito de toda la vida: World of Warcraft. Horda siempre).
 
+![Luffy&cat](./Luffy-gato.jpg)
+
